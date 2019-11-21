@@ -1,2 +1,2 @@
 # ReynirAronSucksAss
-Mættu á klúbbakvöld drengur
+Mættu á klúbbakvöld
